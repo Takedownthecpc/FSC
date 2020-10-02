@@ -1,6 +1,5 @@
 # FSC
 中共CCP冠状病毒真相！
-
 http://www.ccpvirustruth.org
 
 刁维尼的愤怒---三个硬盘版
